@@ -1,0 +1,2 @@
+# psinkajestcool.github.io
+Strona
